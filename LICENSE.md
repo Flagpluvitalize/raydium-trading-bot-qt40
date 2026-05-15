@@ -1,4 +1,4 @@
-# 
+# Get the ultimate trader joe trading bot with new trader joe trading bot Plugin | transaction-batching + yield-farming. Featuring transaction-batching and yield-farming, it's the
 
 
 
